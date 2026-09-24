@@ -1,3 +1,3 @@
-**Hammad Ahmed*\
-BS Software Engineering\
+**Hammad Ahmed**\
+*BS Software Engineering*\
 My Hobby is Cricket
